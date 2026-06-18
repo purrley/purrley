@@ -3,8 +3,8 @@
 </p>
 
 $$\textcolor{#e3c866}{purrley \space  \space \space  \space he \space ,, \space they}$$
-$$\textcolor{#e3c866}{sp/sx469 \space infp \space elfv \space idkbruh}$$
-$$\textcolor{#c4a947}{"quote"}$$
+$$\textcolor{#e3c866}{sp/sx469 \space infp \space elfv}$$
+$$\textcolor{#c4a947}{"You're \space so \space far \space up \space your \space ass \space you \space know \space just \space how \space it \space taste"}$$
 <p align="center">
 <img src="https://github.com/user-attachments/assets/9f455b7b-2163-405e-9f8f-8d7b9f967bee" alt="clarkstamp0" />
 <img alt="clarkstamp1" src="https://github.com/user-attachments/assets/ce202bb1-2ed0-458f-ab7f-119165be87ad" />
