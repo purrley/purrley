@@ -11,3 +11,10 @@ $$\textcolor{#c4a947}{"quote"}$$
 <img alt="clarkstamp2" src="https://github.com/user-attachments/assets/369ad4b5-e6dd-403d-bd0a-4c11cac8efba" />
 <img alt="clarkstamp3" src="https://github.com/user-attachments/assets/64c0f6c0-c07c-4db3-a097-6b7f645a062e" />
 </p>
+
+<p align="center">
+  <a href="https://youtu.be/x3b-3Zh-qDg?si=8mqkVlYVWQBPHQF1">
+<img width="50" height="50" alt="judgewebp" src="https://github.com/user-attachments/assets/3038938b-4743-4f24-92be-1714a28f670b" />
+    </a>
+"hi im pablo"
+</p>
